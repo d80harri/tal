@@ -1,0 +1,10 @@
+#Die Nachrichten
+Raus aus den Federn, Leute. Wir haben den 2. Jänner, es ist 6:30 Uhr und die Sonne ist in Ostal gerade aufgegangen. Vom Bergkamm gab es in den letzten Tagen nichts Neues. Westal scheint sich, genau wie Ostal, auf die Feiertage zu konzentrieren die das neue Jahr einleiten. Wir sind alle gespannt wie lange die Lage noch so ruhig bleibt. 
+
+Verteidigungsminister Rainer hat angekündigt diese verhältnismäßig ruhige Zeit zu nutzen um die Anzahl der Truppen um den Bergkamm zu verstärken. Er verspricht allerdings, dass diese Aktion nur der Friedenssicherung dienen soll und nicht er es sein wird der diese inoffizielle Waffenruhe stört. 
+
+So schön das auch klingen mag, Ostal kann trotzdem nicht vollständig entspannen. Uns haben Meldungen erreicht wonach gestern Abend ein bewaffneter Jugendlicher versucht hat eine Tankstelle auszurauben. Im Verlauf dieses Raubüberfalles kam es zu Handgreiflichkeiten zwischen dem Jugendlichen und dem Ladenbesitzer. Dabei löste sich ein Schuss der den Jugendlichen schwer verletzte. Er ist während der Fahrt ins Krankenhaus seinen Verletzungen erlegen. Der Ladenbesitzer war bereits Tod als die Rettungskräfte eintrafen. Das Spannende: Der Notarzt konnte bei ihm keinerlei Verletzungen feststellen. Die Polizei geht von einem Herzinfarkt aus. Genaueres kann man aber erst nach der Obduktion und der Auswertung der Überwachungskammeras sagen.  
+
+Was das Wetter betrifft: Es bleibt warm für diese Jahreszeit. Wir erwarten für heute ein Hoch von 15 °C. Kein Niederschläge, kein Schnee. Sonnenuntergang findet um Punkt 12:00 Uhr Mittag statt. 
+
+Und für alle die sich immer noch nicht dazu entschließen konnten aufzustehen, hier ein kleiner Anreiz von einer Band die die meisten sicher schon vergessen haben: The 5th dimension mit "Let the sunshine in".
